@@ -4,3 +4,12 @@ To report a security issue, please use [https://g.co/vulnz](https://g.co/vulnz).
 [https://g.co/vulnz](https://g.co/vulnz) for our intake, and do coordination and disclosure here on
 GitHub (including using GitHub Security Advisory). The Google Security Team will
 respond within 5 working days of your report on [https://g.co/vulnz](https://g.co/vulnz).
+Alvin Litana Mirasol 
+Meta Global Head of Executive 
+https://github.com/googleworkspace/python-samples.wiki.git
+alvinlitanamirasol339@gmail.com 
+Meta Platforms Inc Advance technology website 
+end node the node 
+Alvin Litana Mirasol 
+Alvin Litana Mirasol 
+Alvin Litana Mirasol 
